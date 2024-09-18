@@ -1,4 +1,5 @@
-Data analyst proficient in 
+@uwalejoseph 
+Is a Data analyst proficient in 
 Microsoft Excel, Power BI, 
 and SQL, dedicated to 
 transforming complex data into 
